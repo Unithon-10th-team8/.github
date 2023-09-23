@@ -1,4 +1,4 @@
-# We are Team Kamy! (Unithon 10th Team 8)
+# We are Team Infinite! (Unithon 10th Team 8)
 
 ## Team Members
 <table>
